@@ -1,0 +1,1 @@
+this is just downloaded collection for smartphones 
